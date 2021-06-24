@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+❤️ Do programming
+🐊 Love Adventures
+🎮 Playing Video Games
